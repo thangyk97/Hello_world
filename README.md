@@ -1,3 +1,3 @@
 # Hello_world
-bla bla 
+tum lum ta la
 life is only one or zero, black or white, true or false
